@@ -1,1 +1,0 @@
-# JM-Solar-v3
